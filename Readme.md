@@ -1,0 +1,11 @@
+Sitatuation
+
+
+Task
+
+
+Action
+
+
+
+Result
